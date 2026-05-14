@@ -1,4 +1,4 @@
-#  
+#  escape waves for lucky blocks Scripts smart offers the most advanced escape waves for lucky blocks Script, with custom skins and silent aim. Perfect
 
 
 
